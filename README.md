@@ -2,4 +2,4 @@
 
 Hi! This is a try file. Thank you read. Have a nice day.
 
-I want play TOS. XDDDDD
+I want to play TOS.
